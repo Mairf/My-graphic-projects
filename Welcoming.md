@@ -1,2 +1,3 @@
 # My-graphic-projects
-Here I will share my graphic projects with you.
+Hi my friends. Here I will share my graphic projects with you.
+Hope you enjoy it.😎
